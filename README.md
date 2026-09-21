@@ -1,2 +1,3 @@
 Notizenansammlung für Obsidian
+
 ![[Start]]
