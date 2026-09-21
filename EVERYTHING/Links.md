@@ -1,6 +1,6 @@
 Godmode:  All ai models^
 
-https://psylos1.com/
+
 
 https://www.instagram.com/reel/DcedAzlvp7e/?igsi=MXVwbm8yemowb2R0Yg==
 
