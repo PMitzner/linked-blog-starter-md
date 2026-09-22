@@ -3,12 +3,4 @@
 - [ ] Altes Bett rüber bringen
 - [ ] Topper abholen
 - [ ] Sound oben/unten verbinden
-- [ ] l
-- [ ] l
-- [ ] l
-- [ ] l
-- [ ] l
-- [ ] l
-- [ ] l
-- [ ] l
 

@@ -1,9 +1,3 @@
-# START
+Notizenansammlung für Obsidian
 
-
-![[To-Do]]
-
-
-[[General Notes]]
-
-[[Links]]
+![[Start]]
