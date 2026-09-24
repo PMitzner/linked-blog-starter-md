@@ -5,6 +5,7 @@
 - [ ] Sound oben/unten verbinden
 - [ ] Klamotten bestellen
 - [ ] Lampen bestellen
+- [ ] Job Zeug kaufen
 
 
 ---
