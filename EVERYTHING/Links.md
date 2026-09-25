@@ -1,6 +1,7 @@
 Godmode:  All ai models^
 
-
+Ai buhnes:
+https://www.instagram.com/p/DcjEJ_tMvnQ/?stkn=N2dhbzU4dXRrNXJs
 
 https://www.instagram.com/reel/DcedAzlvp7e/?igsi=MXVwbm8yemowb2R0Yg==
 
