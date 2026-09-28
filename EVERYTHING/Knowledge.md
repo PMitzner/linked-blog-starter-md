@@ -10,3 +10,5 @@ https://i0.wp.com/knowyourstuff.nz/wp-content/uploads/2018/02/tripsit-interactio
 danielerickson@yahoo.com
 
 https://archive.org/details/miranon-focus-levels-erickson/page/n7/mode/2up
+
+"The solution to any problem is to find a creative way to respond in love"
