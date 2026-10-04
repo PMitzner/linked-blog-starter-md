@@ -12,3 +12,5 @@ danielerickson@yahoo.com
 https://archive.org/details/miranon-focus-levels-erickson/page/n7/mode/2up
 
 "The solution to any problem is to find a creative way to respond in love"
+
+https://www.instagram.com/reel/Dd65wGXSoHx/?stkn=MW1icGd3cGFrM2doMw==
