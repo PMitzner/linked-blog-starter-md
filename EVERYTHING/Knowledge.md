@@ -20,3 +20,15 @@ https://www.instagram.com/reel/Dc9bvEmSboC/?stkn=MWk4NGtsdmZscWgzZw==
 https://www.instagram.com/reel/Dd7zdkthMJ-/?stkn=b2NldDZoNzJzNjYz
 
 https://www.instagram.com/reel/Ddot9gqqciI/?stkn=MTl5bXNqenduaTQydw==
+
+- https://www.youtube.com/watch?v=YrwAiU2g5RU
+
+https://intuitivespecialists.com/target-pool/
+
+https://remoteviewing.link/
+
+https://thetargetpool.com/login.php
+guest - guest
+
+RV Video - https://youtube.com/playlist?list=PL1I9yx2emJeK6Z5emtnt98R1aZfb41pbA
+- https://www.youtube.com/watch?v=YrwAiU2g5RU
