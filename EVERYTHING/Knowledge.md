@@ -20,7 +20,6 @@ https://www.instagram.com/reel/Dc9bvEmSboC/?stkn=MWk4NGtsdmZscWgzZw==
 https://www.instagram.com/reel/Dd7zdkthMJ-/?stkn=b2NldDZoNzJzNjYz
 
 
-
 https://intuitivespecialists.com/target-pool/
 
 https://remoteviewing.link/
