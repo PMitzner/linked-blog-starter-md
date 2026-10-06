@@ -31,3 +31,5 @@ https://thetargetpool.com/login.php
 guest - guest
 
 RV Video - https://youtube.com/playlist?list=PL1I9yx2emJeK6Z5emtnt98R1aZfb41pbA
+
+https://archive.org/details/fundamentals-of-hyperborean-wisdom-volume-1-machine-translation-berserker-books
