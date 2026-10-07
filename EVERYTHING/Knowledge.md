@@ -35,3 +35,5 @@ RV Video - https://youtube.com/playlist?list=PL1I9yx2emJeK6Z5emtnt98R1aZfb41pbA
 https://archive.org/details/fundamentals-of-hyperborean-wisdom-volume-1-machine-translation-berserker-books
 
 https://youtu.be/apkLFGt0aqw?is=0XTEbfmHby2qK6V-
+
+https://www.instagram.com/p/Dd4EaZDG82o/?img_index=2&stkn=ZDJxZWlvZ2dhaDQ=
