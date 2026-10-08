@@ -40,4 +40,4 @@ https://www.instagram.com/p/Dd4EaZDG82o/?img_index=2&stkn=ZDJxZWlvZ2dhaDQ=
 
 https://www.instagram.com/reel/DeLb38MIoj_/?stkn=MXh2bnIzajNnN3AwbQ==
 
-https://hyperboreanwisdom.com/ s25
+https://hyperboreanwisdom.com/ s33
