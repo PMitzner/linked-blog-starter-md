@@ -51,6 +51,7 @@ You encounter a bunch of new enemies which drop different items and offer new ch
 
 Within the end of each Chapter of you Adventure you will come to find an ancient legendary demon. Defeating these is nessecary for restoring the beauty of Goldstein.
 
+While in an adventurous world like Clifford or other regions, time is stopped and you get to mine and fight around as much as your stamina and health stay up.
 
 
 
