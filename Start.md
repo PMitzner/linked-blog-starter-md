@@ -2,6 +2,8 @@
 
 ![[Notizen]]
 
+[[Spielkonzepte]]
+
 ![[To-Do]]
 
 # Links & Co
