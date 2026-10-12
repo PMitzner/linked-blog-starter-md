@@ -29,6 +29,27 @@ And to not forget...
 
 Find out about whatever all those adventurers are so badly trying to find here...
 
+## Adventures
+
+The main story and with that the unlocking of new areas is a central part of the players adventures
+
+The player will have their first adventure when inquiring another adventurer on the way to the mine
+
+They recieve a hint that a person in Cliffard, a nearby island/culture is very knowledgeble of the secrets below Goldstein.
+
+Traveling to Cliffard requires to enter a special boat that you need an insider ticket for
+
+Looking for the ticket you venture around the island talking to all kinds of people until you find a drunk old guy who wants to fight you.
+
+You will fight and if successful, recieve the ticket in return for not telling anyone you beat them in a fight.
+
+With the ticket you go into the boat house at night and manage to get into the boat.
+
+You arrive at the other side after a while and you see yourself in a beautiful rocky but liveful landscape.
+
+You encounter a bunch of new enemies which drop different items and offer new challenges.
+
+Within the end of each Chapter of you Adventure you will come to find an ancient legendary demon. Defeating these is nessecary for restoring the beauty of Goldstein.
 
 
 
