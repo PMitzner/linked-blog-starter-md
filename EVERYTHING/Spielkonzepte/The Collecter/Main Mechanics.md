@@ -24,6 +24,10 @@ Of course you might have to defend yourself better. Look no further than the "**
 
 Fights in this game are **turn-based**. You select a move every turn. Some moves are provided by your "sword" but there will be other items that provide combat usage and therefore appear in the move selection. Some of these items will be **food**, **potions,** other **weapons** and **gadgets**, which will provide different reusable utillity in fights.
 
+#### Additional Action Gear
+
+The **sift** is used to gather gold and other ressources from the many rich waterfalls in Goldstein
+
 #### Leveling and Moves
 
 Defeating virtually anything in a battle will grant experience and level you up, every Levelup is significant. Most stats are increased and it lets you choose an upgrade as an additional reward from the following:
