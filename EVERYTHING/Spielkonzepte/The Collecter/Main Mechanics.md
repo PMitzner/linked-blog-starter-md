@@ -47,3 +47,7 @@ Yes a bug, every sword can optionally be induced with an insects life. Every ins
 #### Toolcrafting
 
 Toolcrafting works very similarly to Swordcrafting. The only difference being that you may require additional ingredients such as a string for the fishing rod and bow
+
+##### **Sense**
+
+The Players **sense** ability can be activated at any time to visualize around yourself the hostility and magnitude of nearby energy, emitted by other entities or events.
