@@ -53,6 +53,16 @@ Yes a bug, every sword can optionally be induced with an insects life. Every ins
 
 There is a bunch of different materials to find throughout the game. Each material type has their strengths and weaknesses, though some might be stronger than others.
 
+- Wood (starter)
+- Heavy Rock
+- Metal
+- Steel
+- Platinum
+- Quartz
+- Crystal
+- Black Ice
+- Obsidian
+
 ##### **Sense**
 
 The Players **sense** ability can be activated at any time to visualize around yourself the hostility and magnitude of nearby energy, emitted by other entities or events.
