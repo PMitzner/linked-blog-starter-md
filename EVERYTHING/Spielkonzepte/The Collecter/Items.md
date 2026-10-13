@@ -24,3 +24,8 @@ Unlocking new items will unlock new interactions on the overworld and with that 
 - dive into water > diving suit
 - catching bugs > net
 
+
+## Characters list
+
+- Eeri - kind fairy alien creature, trying to help the player as much as they can: friendly, helping, 
+- Dorb - small goblin like guy with a cap, wants to venture around and find rare treasures: 
