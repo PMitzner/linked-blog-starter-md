@@ -51,12 +51,12 @@ You encounter a bunch of new enemies which drop different items and offer new ch
 
 Within the end of each Chapter of you Adventure you will come to find an ancient legendary demon. Defeating these is nessecary for restoring the beauty of Goldstein.
 
-While in an adventurous world like Clifford or other regions, time is stopped and you get to mine and fight around as much as your stamina and health stay up.
+While in an adventurous world like Clifford or other regions, time is slowed down and you get to explore way more than usual.
 
 
 
 
-Down in the depths you will every now and then come across an ancient demon god who you may need to fight in order to pass and revieve the goodies. Some are smaller weaker demons but some are also ancient legendary menaces so be careful and use your ***sense*** to see strong forces nearby.
+Down in the depths you will come across ancient demon gods whom you may need to fight in order to pass and recieve the goodies. Some are smaller weaker demons but some are also ancient legendary menaces so be careful and use your ***sense*** to see strong forces nearby.
 
 
 
