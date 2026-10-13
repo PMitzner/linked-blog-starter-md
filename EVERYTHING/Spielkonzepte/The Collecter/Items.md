@@ -10,6 +10,7 @@ Unlocking new items will unlock new interactions on the overworld and with that 
 - watering can
 - gloves (also weapon)
 - diving suit
+- net
 
 
 ## interactions list
@@ -21,4 +22,5 @@ Unlocking new items will unlock new interactions on the overworld and with that 
 - fishing > rod
 - open chests > gloves
 - dive into water > diving suit
+- catching bugs > net
 

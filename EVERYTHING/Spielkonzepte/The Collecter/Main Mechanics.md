@@ -15,7 +15,7 @@ There is also the **axe, shovel** and the **hoe**.
 
 Now, there will also be some other hidden ***Action Gear*** which will unlock new ways of collecting stuff!
 
-One of these is going to be the **Treasure Gloves** which are used to open different kinds of secret Chests! Chests in this game are alive and tricky. You might want to use these special gloves to force these things open.
+One of these is going to be the **Gloves** which are used to open different kinds of secret Chests! Chests in this game are alive and tricky. You might want to use these special gloves to force these things open.
 
 Next you will find out about **diving**. Using the **diving suit** you will be able to go underwater for a limited amount of time. While you are underwater, you will have the chance to grab some unique critters and such aswell as chests, loot bags, badges and more!
 Be careful tho as there might also be some aggressive creatures appearing.
@@ -42,15 +42,16 @@ Defeating virtually anything in a battle will grant experience and level you up,
 
 The Player will come across different Special Moves to learn. Following side-quests will often reward you with these. In Combat these will grant you all kinds of effects and/or attacks. Some Special Moves are tagged Legendary, those are the most powerful ones, sometimes consuming a large amount of SP (Special Points)
 
-#### Swordcrafting
+#### Crafting
 
-After completing the blacksmith quest the player will gain access to the **anvil** in which the player will be able to craft weapons from different materials.
+After completing the blacksmith quest the player will gain access to the **anvil** in which the player will be able to craft gloves, hammers and other tools from different materials.
 Here the player needs only to put one bar of any eligible material down aswell as a handle and a bug.
 Yes a bug, every sword can optionally be induced with an insects life. Every insect will have different effects when applied to a weapon. Swordhandles can be found while fishing, exploring, diving, mining or just as drops from enemies.
 
-#### Toolcrafting
 
-Toolcrafting works very similarly to Swordcrafting. The only difference being that you may require additional ingredients such as a string for the fishing rod and bow
+## Materials
+
+There is a bunch of different materials to find throughout the game. Each material type has their strengths and weaknesses, though some might be stronger than others.
 
 ##### **Sense**
 
