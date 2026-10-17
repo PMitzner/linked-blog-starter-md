@@ -13,3 +13,5 @@ https://www.instagram.com/reel/DeN_F_iCabb/?mdxt=MWJoeTBxbWN4azc3Ng==
 https://www.instagram.com/reel/DaZ_kOquhmK/?psln=NjNwM2FuZGhyNXcy lokale ki
 
 https://www.instagram.com/reel/DeMpc4KOx6Y/?psln=bnlxNnZ5azNpamp4 adobe free
+
+https://www.instagram.com/reel/DeXVY5cBgQq/?obrf=MzBlNXN6dGJxN2xl freecam map + planes n devices shown
