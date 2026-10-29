@@ -17,10 +17,16 @@ https://www.google.com/url?sa=t&source=web&cd=&ved=2ahUKEwjA_6Wzg9yXAxVCVqQEHWs9
 
 Red light sweater
 
-
 ______
 REDDIT POST WALKTHROUGH
 https://www.reddit.com/r/QualityReps/comments/1iy30i6/the_ultimate_quality_reps_guide/
 ___
 https://www.reddit.com/r/QualityReps/s/vymcbYRM7T
 Nice shirt
+___
+https://e.tb.cn/h.jfnAOVnbntLVfAz?tk=IVH9TykvYWy
+Birkenstock slides
+___
+
+
+
