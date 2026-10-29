@@ -22,3 +22,5 @@ ______
 REDDIT POST WALKTHROUGH
 https://www.reddit.com/r/QualityReps/comments/1iy30i6/the_ultimate_quality_reps_guide/
 ___
+https://www.reddit.com/r/QualityReps/s/vymcbYRM7T
+Nice shirt
