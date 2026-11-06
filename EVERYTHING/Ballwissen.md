@@ -1,6 +1,6 @@
 Link Lobby !!!!!!!
 
-spritefusion.com
+spritefusion.com > clean pixelart downscaler
 
 https://www.instagram.com/reel/Dd7dmbYovGs/?stkn=ZnF1a3VlYzYwN2dj - simulated pre amp
 
