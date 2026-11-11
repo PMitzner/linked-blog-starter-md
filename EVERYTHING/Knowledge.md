@@ -1,6 +1,6 @@
 ___
 https://archive.org/details/fundamentals-of-the-hyperborean-wisdom-complete-english-natural-translation/Fundamentals%20of%20the%20Hyperborean%20Wisdom%20%28complete%20English%20natural%20translation%29%20%281%29/page/86/mode/2up
-- s86
+- s92
 ___
 
 
