@@ -1,3 +1,16 @@
+___
+https://archive.org/details/fundamentals-of-the-hyperborean-wisdom-complete-english-natural-translation/Fundamentals%20of%20the%20Hyperborean%20Wisdom%20%28complete%20English%20natural%20translation%29%20%281%29/page/86/mode/2up
+- s86
+___
+
+
+
+
+
+
+
+
+
 
 https://www.reddit.com/r/Psychonaut/comments/12l2n90/comprehensive_out_of_body_experience_induction/
 
